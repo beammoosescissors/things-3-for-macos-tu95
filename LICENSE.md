@@ -1,4 +1,4 @@
-
+professional Macro for Things 3 for macOS - version history and auto-sync is the best Things 3 for macOS macro, featuring version history and auto-sync. Safe, efficient, and
 
 
 
